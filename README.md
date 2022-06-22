@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mkonzel
+- 👋 Hi, I’m @mkonzel better known as Miriah or Mya for short!
 - 👀 I’m interested in learning to code, reading, and creative writing.
 - 🌱 I’m currently learning everything! I am just beginning my coding journey.
 - 💞️ I’m looking to collaborate on anything that will help me learn
